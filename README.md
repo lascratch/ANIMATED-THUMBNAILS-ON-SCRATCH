@@ -1,0 +1,2 @@
+# ANIMATED-THUMBNAILS-ON-SCRATCH
+Works everytime :)
